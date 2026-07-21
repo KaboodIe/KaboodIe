@@ -15,4 +15,8 @@
 
   </p>
 
-<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=players have healed&color=green">
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=medicines&color=green">
+
+</p>
+
+<img width="736" height="150" alt="1000055624" src="https://github.com/user-attachments/assets/dfdaa80d-c6f9-4c36-999a-37c1d42c10d3" />
