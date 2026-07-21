@@ -2,7 +2,7 @@
   
 ೯⠀⁺ ⠀ 𖥻 𝗢𝟭 ⠀ᰋ <br>
 .☘︎ ݁˖ Lexi/Kas , he/she/it , 14 years old<br>
-. ♬ ݁˖ Bisexual gay (Means more towards men).<br>
+. ♬ ݁˖ Bisexual<br>
 ﹒  ◠  𝓓𝐨𝐥𝐥𝐞𝐭 𝓓𝐢𝐚𝐫𝐲    ⊹    ﹒<br>
 this is my diary space where I'll update maybe daily?? idk.<br>
 ANYWAY 11 DAYS LEFT FOR MY BIRTHDAY!<br>
