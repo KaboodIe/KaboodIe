@@ -19,7 +19,7 @@
 
 </p>
 
-<p align="center"> me using f*rskn cosplays doesnt mean i still support it.
+<p align="center"> me using f*rskn + dandys world cosplays doesnt mean i still support it.
 
 </p>
 
