@@ -23,4 +23,8 @@
 
 </p>
 
+<p align="center"> 🟢 = in menu | ⛔ = offtab/afk | 🌙 = int frly + cudcomf
+
+</p>
+
 <img width="736" height="150" alt="1000055624" src="https://github.com/user-attachments/assets/dfdaa80d-c6f9-4c36-999a-37c1d42c10d3" />
