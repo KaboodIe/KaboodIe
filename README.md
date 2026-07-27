@@ -1,3 +1,7 @@
+href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=drivesdk">spread awareness</a>
+
+</p>
+
 <img width="736" height="150" alt="1000055624" src="https://github.com/user-attachments/assets/dfdaa80d-c6f9-4c36-999a-37c1d42c10d3" />
 
 </p>
