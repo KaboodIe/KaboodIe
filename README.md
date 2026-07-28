@@ -3,4 +3,4 @@
 
   </p>
 
-<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=chunggies&color=green">
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=chunggies&color=pink">
