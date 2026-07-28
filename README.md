@@ -28,7 +28,7 @@
 
 </p>
 
-<p align="center"> [pt-fashion](https://github.com/pt-fashion) goated
+<p align="center"> [@pt-fashion](https://github.com/pt-fashion) goated
 
 <p align="center"> i MIGHT overreact sometimes , im sorry to whoever is annoyed by that its pure unintentionally
 
