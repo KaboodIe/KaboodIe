@@ -28,7 +28,7 @@
 
 </p>
 
-<p align="center"> <a href="https://github.com/pt-fashion.">pt-fashion</a>
+<p align="center"> <a href="https://github.com/pt-fashion.">pt-fashion</a> goated
 
 
 <p align="center"> i MIGHT overreact sometimes , im sorry to whoever is annoyed by that its pure unintentionally
