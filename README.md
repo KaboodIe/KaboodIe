@@ -30,6 +30,8 @@
 
 <p align="center"> 🟢 = in menu | ⛔ = offtab/afk | 🌙 = int frly + cudcomf
 
+<p align="center"> i MIGHT overreact sometimes , im sorry to whoever is annoyed by that
+
 </p>
 
 <img width="736" height="150" alt="1000055624" src="https://github.com/user-attachments/assets/dfdaa80d-c6f9-4c36-999a-37c1d42c10d3" />
