@@ -30,7 +30,7 @@
 
 <p align="center"> 🟢 = in menu | ⛔ = offtab/afk | 🌙 = int frly + cudcomf
 
-<p align="center"> i MIGHT overreact sometimes , im sorry to whoever is annoyed by that
+<p align="center"> i MIGHT overreact sometimes , im sorry to whoever is annoyed by that its pure unintentionally
 
 </p>
 
