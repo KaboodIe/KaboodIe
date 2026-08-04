@@ -7,4 +7,8 @@ awesome oomfs <3 <a href="https://github.com/promiseduo">promiseduo</a> <a href=
 
 </p>
 
-<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=chunggies&color=green">
+<p align="center"> <img width="75" src="https://komarev.com/ghpvc/?username=spiralwindly&label=bunnies&color=blue">
+
+</p>
+
+<a href="https://github.com/glxcierx">glxcierx</a> is also me ok
