@@ -6,7 +6,7 @@
 
 <p align="center"><a href="https://github.com/glxcierx">glxcierx</a> is also me ok
 
-<p align="center"> will continue editing read.me ok? ok
+<p align="center"> will continue editing read.me later ok? ok
 
 </p>
 
