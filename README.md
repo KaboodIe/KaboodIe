@@ -3,7 +3,7 @@
 
   </p> 
 
-awesome oomfs <3 <a href="https://github.com/promiseduo">promiseduo</a> <a href="https://github.com/killerbunnies">killerbunnies</a> <a href="https://github.com/decayingcorpses">decayingcorpses</a> <a href="https://github.com/basicISbasic">basicISbasic</a> <a href="https://github.com/thegloriouspie">thegloriouspie</a> <a href="https://github.com/pupfies">pupfies</a> <a href="https://github.com/lilwolfeey">lilwolfeey</a>
+awesome oomfs <3 <a href="https://github.com/promiseduo">promiseduo</a> <a href="https://github.com/killerbunnies">killerbunnies</a> <a href="https://github.com/decayingcorpses">decayingcorpses</a> <a href="https://github.com/basicISbasic">basicISbasic</a> <a href="https://github.com/thegloriouspie">thegloriouspie</a> <a href="https://github.com/pupfies">pupfies</a> <a href="https://github.com/lilwolfeey">lilwolfeey</a> <a href="https://github.com/sorrowfulpredict">sorrowfulpredict</a>
 
 </p>
 
