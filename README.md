@@ -5,11 +5,11 @@
 </p>
 
 <p align="center">
-  <a href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=drivesdk.">copytown is real</a>
+  <a href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=drivesdk.">spreading awareness</a>
 
   </p> 
 
-<p align="center"><a href="https://github.com/glxcierx">glxcierx</a> is also me ok
+<p align="center"><a href="https://github.com/glxcierx">glxcierx</a> is also me ok - will continue this later
 
 
 </p>
